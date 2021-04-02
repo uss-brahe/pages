@@ -1,6 +1,6 @@
 # Sel, Zaliel
 
-![img](https://i.imgur.com/kEL9g1T.png)
+![img](https://i.imgur.com/kEL9g1Tm.png)
 
 *Zaliel Sel, c. 2421*
 
